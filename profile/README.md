@@ -1,3 +1,1 @@
-# lofi-apartment
-
-[YouTube Channel](https://www.youtube.com/@apartmentlofi/streams)
+[Our YouTube Channel](https://www.youtube.com/@apartmentlofi/streams)
